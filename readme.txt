@@ -1,0 +1,1 @@
+Tomen en consideración que es la primer semana :d
